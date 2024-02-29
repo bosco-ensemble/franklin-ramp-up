@@ -1,1 +1,0 @@
-# franklin-ramp-up
